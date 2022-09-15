@@ -1,1 +1,1 @@
-Hi develoeped by 1st
+Hi develoeped by First developer
